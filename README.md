@@ -15,4 +15,8 @@ Instagram: @eduu__pinho or @prusordu
 YouTube: [Shyr de veludo](https://www.youtube.com/@shyrdeveludo6787)
 
 
-I Hope I can help and learn even more here :)
+If you want to see my games, you can find it in my 
+[Linktr.ee](https://linktr.ee/shyrthefirst)
+
+my first game is released!!
+[Get it on Play Store](https://play.google.com/store/apps/details?id=m.sh.tale_of_the_last)
