@@ -7,7 +7,7 @@ You can send me a email in : edupinho94@gmail.com
 Or find me in my social medias like
 Facebook : https://m.facebook.com/DuLuftShyr
 Instagram: @eduu__pinho or @prusordu
-YouTube: https://youtube.com/channel/UCL270K-RTh0K4rXvsqIsvGA
+YouTube: [Shyr de veludo](https://www.youtube.com/@shyrdeveludo6787)
 
 
 I Hope I can help and learn even more here :)
